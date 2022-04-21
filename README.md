@@ -1,0 +1,1 @@
+About Latex studying record.
